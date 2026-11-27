@@ -6,5 +6,9 @@ s   (⁠✿⁠^⁠‿⁠^⁠)
 ____________________________________________
 
 
+annnyy fandom
 
-<img width="2048" height="1536" alt="1000005102" src="https://github.com/user-attachments/assets/ecce0669-2601-47dc-a505-37078e9da2c4" />
+
+
+
+<img width="720" height="676" alt="1000005109" src="https://github.com/user-attachments/assets/7fc7777f-804a-4edb-a9c7-67fabd51fba7" />
