@@ -1,1 +1,10 @@
-<img width="360" height="300" alt="1000005017" src="https://github.com/user-attachments/assets/5b5c7b0a-43ed-4d7d-8ec8-2c6c1e4143d3" />
+s   (⁠✿⁠^⁠‿⁠^⁠)
+
+
+
+
+____________________________________________
+
+
+
+<img width="2048" height="1536" alt="1000005102" src="https://github.com/user-attachments/assets/ecce0669-2601-47dc-a505-37078e9da2c4" />
